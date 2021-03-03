@@ -1,9 +1,9 @@
 Hi there, I am sky!  
 
 * Shan'xi Normal University
-* working in shenshen CNCE 
+* working in shenzhen CNCE 
 * familiar with Android, currently learning Linux
-* single
+* single, innovative, adventure
 
 #### contact me
 
